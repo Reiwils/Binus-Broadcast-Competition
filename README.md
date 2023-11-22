@@ -1,2 +1,2 @@
 # Binus-Broadcast-Competition
-Saya pernah mengikuti kompetisi Binus Broadcast yaitu menjadi news presenter yang langsung dinilai oleh orang yang bekerja di BBC News. Dalam kompetisi ini saya mengikuti webinar dari Zilvia Iskandar dan menulis naskah berita sendiri walaupun dikompetisi ini saya tidak melaju ke babak final.
+I once took part in the Binus Broadcast competition, namely becoming a news presenter who was directly judged by people who work at BBC News. In this competition I took part in a webinar from Zilvia Iskandar and wrote my own news script, although in this competition I did not advance to the final round.
